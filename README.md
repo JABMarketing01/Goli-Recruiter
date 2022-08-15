@@ -1,0 +1,2 @@
+# Goli-Recruiter
+We believe that employees are the assets of every organization. So, we are providing best candidates employees for your organization. We already hired candidates for Banking sector and other corporate industries such like Chemical industries, Pharma Industries, Textile Sector and other manufacturing and trade companies. We'll establish trusting partnerships to better the hiring needs and specifications of our clients
